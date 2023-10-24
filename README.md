@@ -1,8 +1,7 @@
-I øjeblikket kan du tilmelde dig juniorlejr, du kan downloade programmet i bunden af siden.
-
 # VELKOMMEN PÅ JUNIORLEJR PÅ STRANDSBORG
 ## DEN 27. – 29. OKTOBER 2023
-**Lejren er desværre fuldt booket**
+**Lejren er desværre fuldt booket**    
+Du kan stadig downloade programmet i bunden af siden.
 
 ### DET PERFEKTE MINUT
 På juniorlejren skal vi bl.a. på løb, spille fodbold, spille bordtennis, spille pitjau, lave perler og høre beretninger fra bibelen, som har et eller andet med Jesus at gøre.
