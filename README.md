@@ -1,5 +1,5 @@
 # Velkommen til Kristen lejrforening
-I øjeblikket kan du tilmelde dig juniorlejr, se den pdf'en i bunden hvis du vil downloade programmet.
+I øjeblikket kan du tilmelde dig juniorlejr, se pdf'en i bunden hvis du vil downloade programmet.
 
 # VELKOMMEN PÅ JUNIORLEJR PÅ STRANDSBORG
 ## DEN 27. – 29. OKTOBER 2023
