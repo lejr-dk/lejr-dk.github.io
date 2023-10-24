@@ -1,4 +1,3 @@
-# Velkommen til Kristen lejrforening
 I øjeblikket kan du tilmelde dig juniorlejr, du kan downloade programmet i bunden af siden.
 
 # VELKOMMEN PÅ JUNIORLEJR PÅ STRANDSBORG
