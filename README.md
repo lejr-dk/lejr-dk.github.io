@@ -1,4 +1,5 @@
 # VELKOMMEN PÅ JUNIORLEJR PÅ STRANDSBORG
+Dette er en midlertidig side - den gamle side blev ikke hacket - den blev bare gammel og træt.
 ## DEN 27. – 29. OKTOBER 2023
 **Lejren er desværre fuldt booket**    
 Du kan stadig downloade programmet i bunden af siden.
