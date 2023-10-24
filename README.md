@@ -1,7 +1,5 @@
 # Velkommen til Kristen lejrforening
-Selvfølgelig! Her er indholdet fra PDF'en formateret som Markdown:
-
----
+I øjeblikket kan du tilmelde dig juniorlejr, se den pdf'en i bunden hvis du vil downloade programmet.
 
 # VELKOMMEN PÅ JUNIORLEJR PÅ STRANDSBORG
 ## DEN 27. – 29. OKTOBER 2023
@@ -38,7 +36,7 @@ Kristen Lejrforening af 2002 i samarbejde med Danmarks Folkekirkelige Søndagssk
 **Bemærk:** Lad lejren være fyldt af fællesskab, så lad telefonen blive hjemme. Det er muligt at ringe hjem fra anden telefon, hvis der er behov for det. Lejrchefen kan træffes under lejren på telefon: 40918376.
 
 
-I øjeblikket kan du tilmelde dig juniorlejr, se den nedenstående pdf.
+
 <object data="https://lejr.dk/Juniorlejr okt 2023.pdf" type="application/pdf" width="700px" height="700px">
     <embed src="https://lejr.dk/Juniorlejr okt 2023.pdf">
         <p>Din webbrowser kan ikke vise programmet på siden. Du kan downloade programmet for at se det: <a href="https://lejr.dk/Juniorlejr okt 2023.pdf">Download PDF</a>.</p>
