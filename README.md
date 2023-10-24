@@ -2,6 +2,7 @@ I øjeblikket kan du tilmelde dig juniorlejr, du kan downloade programmet i bund
 
 # VELKOMMEN PÅ JUNIORLEJR PÅ STRANDSBORG
 ## DEN 27. – 29. OKTOBER 2023
+**Lejren er desværre fuldt booket**
 
 ### DET PERFEKTE MINUT
 På juniorlejren skal vi bl.a. på løb, spille fodbold, spille bordtennis, spille pitjau, lave perler og høre beretninger fra bibelen, som har et eller andet med Jesus at gøre.
@@ -25,9 +26,8 @@ Kom og vær med på lejren på Strandsborg. Vi skal have det sjovt med mange for
 - **Pris:** 280 kr. der betales efter tilmelding (Der er inkluderet slikpenge i prisen)
 - **Konto:** 1551 4806049263. Skriv "juniorlejr" og "barnets navn".
 - **Medbring:** sovepose, lagen, udetøj til al slags vejr, toiletsager, håndklæder, pose til snavsetøj, ekstra sko.
-- **Tilmelding via link:** [kortlink.dk/2mna6](https://kortlink.dk/2mna6) Tilmelding åbner den 20. september kl. 19
+- **Tilmelding via link:** Lejren er desværre fuldt booket
 - **Kontaktperson:** Berit Skødt 40918376 mail: Berit@soendagsskoler.dk
-- **Se mere om lejre på:** [www.lejr.dk](http://www.lejr.dk)
 
 ### Arrangør:
 Kristen Lejrforening af 2002 i samarbejde med Danmarks Folkekirkelige Søndagsskoler. Når du tilmelder dig og betaler for lejren, bliver du automatisk medlem af foreningen: Kristenlejr forening af 2002 i den indeværende kalenderår.
