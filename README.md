@@ -42,3 +42,4 @@ Kristen Lejrforening af 2002 i samarbejde med Danmarks Folkekirkelige Søndagssk
         <p>Din webbrowser kan ikke vise programmet på siden. Du kan downloade programmet for at se det: <a href="https://lejr.dk/Juniorlejr okt 2023.pdf">Download PDF</a>.</p>
     </embed>
 </object>
+<p><a href="https://lejr.dk/Juniorlejr okt 2023.pdf">Download PDF</a></p>
