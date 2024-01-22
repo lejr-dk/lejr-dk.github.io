@@ -30,6 +30,7 @@ _FÆLLESSKAB - ET SKAB FOR ALLE_
 - **Sted:** Strandsborg, Engblommevej 3, 8420 Knebel
 - **Pris:** 285 kr. der betales efter tilmelding (Der er inkluderet slikpenge i prisen)
 - **Konto:** 1551 4806049263. Skriv "juniorlejr" og "barnets navn".
+- **Program:** [https://lejr.dk/Deltager%20program%20feb%202024.pdf](https://lejr.dk/Deltager%20program%20feb%202024.pdf)
 
 ### Medbring:
 
